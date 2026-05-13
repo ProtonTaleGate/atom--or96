@@ -1,4 +1,4 @@
-# 
+# rare Atom for PC | Atom for Windows Theme | live-share + emmet-support offers the most advanced Atom for PC | Atom for Windows theme, with live-share and emmet-support. Ideal for
 
 
 
